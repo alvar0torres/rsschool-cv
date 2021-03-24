@@ -3,7 +3,7 @@
 ## Contact Info:
 
 * 995.alvaro@gmail.com
-* 694 975 544
+* +48 694 975 544
 
 ## Goal:
 
